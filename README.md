@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ZEEMKIRRITE
+- 👋 Hi, I’m @ZEEMKIRITTE
 - 👀 I’m interested in voice assistant 
 - 🌱 I’m currently learning xd
 - 💞️ I’m looking to collaborate on xd
